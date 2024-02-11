@@ -1,0 +1,2 @@
+La Orden de los Iluminados o los Illuminati eran una sociedad secreta formada en Baviera (ahora parte de la Alemania moderna) que existió desde 1776
+hasta 1785; sus miembros originalmente se referían a sí mismos como perfectibilistas. 
